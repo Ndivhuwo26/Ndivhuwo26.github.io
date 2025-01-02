@@ -1,1 +1,1 @@
-This my Landing page 
+This hosting for strong Arm clothing website
